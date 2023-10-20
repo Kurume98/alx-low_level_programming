@@ -1,0 +1,1 @@
+Solution to singly listed
